@@ -2,7 +2,7 @@
 
 https://www.bilibili.com/video/BV1PJ411n7xZ
 
-
+笔记已完结（求Star）
 
 笔记可能做的不全的地方大家自己再补充一下 
 
